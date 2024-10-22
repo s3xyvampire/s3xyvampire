@@ -1,5 +1,6 @@
 # ꒰ about me ꒱
-![IMG_6587](https://github.com/user-attachments/assets/a8e86eb0-5e49-4813-8d98-ce8abee70923)
+![IMG_6587](https://github.com/user-attachments/assets/7288141d-ca81-4c95-b5c2-0928977686c9)
+
 _cr @2bencats on insta_
 
     > you can call me soda/roma/by the skin i'm using
@@ -21,7 +22,7 @@ do not copy or take inspirations of my skins
     > i LOVE my partner!!!!!!!!
 
 # ꒰ dni ꒱
-![IMG_6589](https://github.com/user-attachments/assets/4401ea13-0611-45d2-877d-791c4761294d)
+![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
 _cr @melonscythe-deactivated20211019 on tumblr_
 
 basic, fans of irkutsk molotochniki and schoolshooters, those who justify murderers and criminals, wilbur soot supporters, putinists, btd fans, pro-contact paraphiles, lolicon fans, shotacon fans, people obsessed with genshin or sekai or honkai
