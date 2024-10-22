@@ -1,16 +1,27 @@
-## Hi there 👋
+# ꒰ about me ꒱
+![IMG_6587](https://github.com/user-attachments/assets/a8e86eb0-5e49-4813-8d98-ce8abee70923)
+_cr @2bencats on insta_
 
-<!--
-**s3xyvampire/s3xyvampire** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+    > you can call me soda/roma/by the skin i'm using
 
-Here are some ideas to get you started:
+he/they/any
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    > aboyic, gendervoid + omnisexual
+
+i have EVIL autism
+
+    > ru/eng
+
+w2i is okay but i'm awkward and not talkative....
+
+    > c+h is not okay 
+
+do not copy or take inspirations of my skins
+
+    > i LOVE my partner!!!!!!!!
+
+# ꒰ dni ꒱
+![IMG_6589](https://github.com/user-attachments/assets/4401ea13-0611-45d2-877d-791c4761294d)
+_cr @melonscythe-deactivated20211019 on tumblr_
+
+basic, fans of irkutsk molotochniki and schoolshooters, those who justify murderers and criminals, wilbur soot supporters, putinists, btd fans, pro-contact paraphiles, lolicon fans, shotacon fans, people obsessed with genshin or sekai or honkai
