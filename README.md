@@ -13,15 +13,17 @@ i have EVIL autism
 
     > ru/eng
 
-w2i is okay but i'm awkward and not talkative....
+i'm a minor
 
-    > c+h is not okay 
+    > w2i is okay but i'm awkward and not talkative....
 
-do not copy or take inspirations of my skins
+c+h is not okay 
 
-    > i don't roleplay
+    > do not copy or take inspirations of my skins
 
-i LOVE my partner!!!!!!!!
+i don't roleplay
+
+    > i LOVE my partner!!!!!!!!
 
 # ꒰ dni ꒱
 ![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
