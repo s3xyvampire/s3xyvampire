@@ -23,8 +23,6 @@ c+h is not okay
 
 i don't roleplay
 
-    > i LOVE my partner!!!!!!!!
-
 # ꒰ dni ꒱
 ![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
 _cr @melonscythe-deactivated20211019 on tumblr_
