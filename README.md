@@ -3,7 +3,7 @@
 
 _cr @2bencats on insta_
 
-    > you can call me soda/roma/by the skin i'm using
+    > you can call me soda/benry/roma/by the skin i'm using
 
 he/they/any
 
