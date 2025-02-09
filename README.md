@@ -7,7 +7,7 @@ _cr @2bencats on insta_
 
 he/they/any
 
-    > aboyic, gendervoid + omnisexual
+    > аgеndеrfluid, transneumasc, gendervoid + omnisexual
 
 i have EVIL autism
 
