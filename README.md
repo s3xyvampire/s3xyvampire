@@ -9,7 +9,7 @@ he/they/any
 
     > аgеndеrfluid, transneumasc, gendervoid + omnisexual
 
-i have EVIL autism
+i have EVIL autism + schizoaffective disorder
 
     > ru/eng
 
