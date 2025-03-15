@@ -20,7 +20,7 @@ i'm a minor
 c+h is not okay 
 
     > do not copy or take inspirations of my skins
-mostly offtab or afk. w2i
+mostly offtab or afk or with my partner. w2i
 
     > i don't roleplay
 
