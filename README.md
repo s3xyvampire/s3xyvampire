@@ -20,8 +20,9 @@ i'm a minor
 c+h is not okay 
 
     > do not copy or take inspirations of my skins
+mostly offtab or afk. w2i
 
-i don't roleplay
+    > i don't roleplay
 
 # ꒰ dni ꒱
 ![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
