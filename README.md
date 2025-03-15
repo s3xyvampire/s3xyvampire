@@ -15,14 +15,13 @@ i have EVIL autism + schizoaffective disorder
 
 i'm a minor
 
-    > w2i is okay but i'm awkward and not talkative....
+    > mostly offtab or afk or with my partner. w2i
 
 c+h is not okay 
 
     > do not copy or take inspirations of my skins
-mostly offtab or afk or with my partner. w2i
 
-    > i don't roleplay
+i don't roleplay
 
 # ꒰ dni ꒱
 ![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
