@@ -7,7 +7,7 @@ _cr @2bencats on insta_
 
 he/they/any
 
-    > аgеndеrfluid, transneumasc, gendervoid + omnisexual
+    > аgеndеrfluid, transneumasc, gendervoid + omni-lesbian
 
 i have EVIL autism + schizoaffective disorder
 
