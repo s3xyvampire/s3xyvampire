@@ -27,4 +27,4 @@ i don't roleplay
 ![IMG_6589](https://github.com/user-attachments/assets/b1bf0037-5c0b-4ca9-8ee7-f11e5702635d)
 _cr @melonscythe on tumblr_
 
-basic, true crime comminty, wilbur soot supporters, btd fans, pedos, zoos, necros and etc, people obsessed with genshin or sekai or honkai
+basic, true crime community, wilbur soot supporters, btd fans, pedos, zoos, necros and etc, people obsessed with genshin or sekai or honkai
