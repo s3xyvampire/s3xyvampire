@@ -13,7 +13,7 @@ i have autism + schizoaffective disorder
 
     > ru/eng
 
-i'm a minor
+i'm 18 y.o
 
     > mostly offtab or afk or with my partner. w2i
 
