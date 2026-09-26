@@ -1,7 +1,4 @@
-# ꒰ about me ꒱
 ![image alt]([[https://github.com/user-attachments/assets/7288141d-ca81-4c95-b5c2-0928977686c9](https://github.com/s3xyvampire/background/blob/fa66951ab82180329504ccdca66b3bc6c0eac8f3/156_20260926224318.png)](https://github.com/s3xyvampire/background/blob/cecbf0d4719bc92b941db5c2f1986f5fb12f9fa1/156_20260926235030.png))
-
-_cr @2bencats on insta_
 
     > you can call me tony/roma/soda/by the skin i'm using
 
