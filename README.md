@@ -11,7 +11,7 @@
   ⁔‿  ﹕ㅤ  tony  ⸝  roma ㅤ  ⊹੭  . 𐂯
     </p>
 <p align="center">
-    ꒰ ᐡ ᐧ ﻌ ᐧ ᐡ ꒱ ㅤ 18 y.oㅤ﹒autistic & sza ㅤ ◠♡ㅤ he/they>any   ⸝⸝
+    ꒰ ᐡ ᐧ ﻌ ᐧ ᐡ ꒱ ㅤ 18 y.oㅤ﹒autistic & sza ㅤ ◠♡ㅤ he/they>any ㅤ  ⸝⸝
  </p>
  <p align="center">
  ⠀苦  ࿁   ˚⠀ㅤ  ฅ ฅㅤgendervoid + omnisexual⠀⠀ ೀ⠀⠀ꞌꞋ   ࣪ ‹𝟹
