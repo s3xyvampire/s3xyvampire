@@ -18,7 +18,7 @@
  </p>
  
  <p align="center">
-♡.ㅤㅤ ︶ ⟢ ㅤ rusㅤ† 𓈒ㅤeng  ! ㅤ  ۪ ˚  ﹟૮＾ﻌ＾ა
+♡.ㅤㅤ ︶ ⟢ ㅤ rusㅤ† 𓈒ㅤeng  ! ㅤ  ۪ ˚  ﹟૮ ◜ ‧̫ ◝ ა
 </p>
 
 
@@ -54,7 +54,7 @@
 </p>
 
 <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=s3xyvampire&color=lightgrey&style=plastic&label=(ᴗ͈ˬᴗ͈)ഒ‧˚₊⊹&"
+    <img src="https://komarev.com/ghpvc/?username=s3xyvampire&color=lightgrey&style=plastic&label=(ᴗ͈ˬᴗ͈)ഒ‧˚₊⊹&base=0"
         </p>
 
 #
