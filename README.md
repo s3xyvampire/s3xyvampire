@@ -54,7 +54,7 @@
 </p>
 
 <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=s3xyvampire&color=lightgrey&style=plastic&label=(ᴗ͈ˬᴗ͈)ഒ‧˚₊⊹&base=0"
+    <img src="https://komarev.com/ghpvc/?username=morbidlybondaged&color=lightgrey&style=plastic&label=(ᴗ͈ˬᴗ͈)ഒ‧˚₊⊹"
         </p>
 
 #
